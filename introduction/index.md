@@ -12,7 +12,7 @@ You're born, you live and then you die.
 Civilization has evolved societal structures to help you have a better experience along the way.
 
 A fundamental element of life is freedom — the ability to exercise choice and decide what to do next.
-Of course this comes with the elements of responsibility and accountability for your choices.
+Of course, this comes with the elements of responsibility and accountability for your choices.
 You can choose, decide and act but you will have to accept the consequences.
 Thus, a better life benefits heavily from the element of education.
 My university studies were in Computer Engineering and Philosophy — about Systems and Ideas.
