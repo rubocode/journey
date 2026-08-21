@@ -42,7 +42,7 @@ These were the days when I had begun studying Steve Jobs and Apple rather closel
 
 The four core disciplines of Philosophy, Psychology, Stategy and Systems elegantly captured my broad interests.
 Among systems, Computing became special.
-Governance becase special because it was my purpose in life to understand it.
+Governance became special because it was my purpose in life to understand it.
 
 I have decided to document my findings for two reasons.
 First, I can map out a coherent picture and connect the dots.
@@ -53,6 +53,6 @@ simple, focused and relevant to overall purpose.
 Of course, there is a personal element and a personal touch as it is derived out of my journey.
 
 I am sharing this on the Internet and the format is designed primarily for a phone.
-It is easy to share a coherent chunk from a larger topic.
+It is designed in a structure made up of coherent chunks inside larger topics.
 
 Enjoy!
