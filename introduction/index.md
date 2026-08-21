@@ -31,7 +31,7 @@ a Christian pastor helped me overcome the spiritual challenges and helped me put
 I am now 56 years old and my journey has led me to the point where I can assuredly state that
 there is purpose in life and that it is not a crap shoot.
 There was an essential core idea around which my search in life has centered.
-Is there an absolute truth and can we design a meritocratic system of governance on a foundation of freedom, purpose, progress and peace?
+Is there an absolute truth and can we design a meritocratic system of governance on a foundation of freedom, purpose and peace?
 How do we go about making progress along this path?
 
 I have chosen to seek the truth instead of preaching.
