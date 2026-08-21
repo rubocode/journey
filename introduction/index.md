@@ -53,6 +53,6 @@ simple, focused and relevant to the overall purpose.
 Of course, there is a personal element and a personal touch as it is derived out of my journey.
 
 I am sharing this on the Internet and the format is designed primarily for a phone.
-Its structure is organized as coherent chunks of content inside larger topics.
+It is organized as coherent chunks of content inside larger topics.
 
 Enjoy!
