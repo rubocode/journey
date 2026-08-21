@@ -52,3 +52,4 @@ Second, writing allows incremental improvement for more clarity and precision.
 I have made considerable effort to make the organization of content structure
 simple, focused and relevant to overall purpose.
 
+Enjoy!
