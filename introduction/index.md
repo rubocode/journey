@@ -35,7 +35,7 @@ Is there an absolute truth and can we design a meritocratic system of governance
 How do we go about making progress along this path?
 
 I have chosen to seek the truth instead of preaching.
-What that means is that I am primary a student and not a master.
+What that means is that I am primarily a student and not a master.
 I was in search for the truth and I wanted to learn about everything.
 In my mid forties it occurred to me that some sort of focus and organization would be beneficial.
 These were the days when I had begun studying Steve Jobs and Apple rather closely.
