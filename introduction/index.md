@@ -17,7 +17,7 @@ The most important question in life is whether there is any purpose to it or is 
 Each person needs to sort these matters out for him or herself.
 If history is any indication, some people do and some people don't.  Some people, don't even want to bother themselves with the inconvenience.
 
-I was born into a Buddhist family in Colombo, Sri Lanka and I was a practicing Buddhist.  In my late forties, I went through a combination of hardships and challenges.  An accidental meeting with a Christian pastor and his guidance over the next few years helped me overcome the spiritual challenges and helped me put my life back on track.
+I was born into a Buddhist family in Colombo, Sri Lanka and I was a practicing Buddhist.  In my late forties, I went through a combination of hardships and challenges.  An accidental meeting with a Christian pastor and his guidance over the next few years helped me overcome the spiritual challenges and put my life back on track.
 I am now 56 years old and my journey has led me to the point where I can assuredly state that there is purpose in life and that it is not a crap shoot.
 
 > There was an essential core idea around which my search in life has centered.  Is there an absolute truth and can we design a meritocratic system of governance on a foundation of freedom, purpose and peace?  How do we go about making progress along this path?
