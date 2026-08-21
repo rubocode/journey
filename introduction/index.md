@@ -20,7 +20,7 @@ My university studies were in Computer Engineering and Philosophy — about Syst
 There are deep and essential questions of life when they are not adequately understood that
 drags life and civilization down into unnecessary suffering, doom and destruction.
 The most important question in life is whether there is any purpose to it or is it merely just a crap shoot.
-Each person needs to sort these matters out for themselves.
+Each person needs to sort these matters out for him or herself.
 If history is any indication, some people do and some people don't.
 Some people, don't even want to bother themselves with the inconvenience.
 
