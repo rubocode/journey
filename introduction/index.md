@@ -40,6 +40,6 @@ I am sharing this on the Internet and it is organized as coherent chunks of cont
 
 Enjoy!
 
-[Ruchira Bomiriya](/)  
-Aug 21, 2026  
-Colombo
+> [Ruchira Bomiriya](/)  
+> Aug 21, 2026  
+> Colombo
