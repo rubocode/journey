@@ -23,9 +23,7 @@ I am now 56 years old and my journey has led me to the point where I can assured
 There was an essential core idea around which my search in life has centered.  Is there an absolute truth and can we design a meritocratic system of governance on a foundation of freedom, purpose and peace?  How do we go about making progress along this path?
 
 I have chosen to seek the truth instead of preaching.
-What that means is that I am primarily a student and not a master. I was in search for the truth and I wanted to learn about everything.  In my mid forties it occurred to me that some sort of focus and organization would be beneficial.  These were the days when I had begun studying Steve Jobs and Apple rather closely.
-
-The four core disciplines of Philosophy, Psychology, Strategy and Systems elegantly captured my broad interests.  Among systems, Computing became special.  Governance became special because it was my purpose in life to understand it.
+What that means is that I am primarily a student and not a master. I was in search for the truth and I wanted to learn about everything.  In my mid forties it occurred to me that some sort of focus and organization would be beneficial.  These were the days when I had begun studying Steve Jobs and Apple rather closely.  The four core disciplines of Philosophy, Psychology, Strategy and Systems elegantly captured my broad interests.  Among systems, Computing became special.  Governance became special because it was my purpose in life to understand it.
 
 I have decided to document my findings for two reasons.
 First, I can map out a coherent picture and connect the dots.
