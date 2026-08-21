@@ -49,7 +49,7 @@ First, I can map out a coherent picture and connect the dots.
 Second, writing allows incremental improvement for more clarity and precision.
 
 I have made considerable effort to make the organization of content structure
-simple, focused and relevant to overall purpose.
+simple, focused and relevant to the overall purpose.
 Of course, there is a personal element and a personal touch as it is derived out of my journey.
 
 I am sharing this on the Internet and the format is designed primarily for a phone.
