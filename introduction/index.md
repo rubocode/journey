@@ -39,3 +39,7 @@ I have made considerable effort to make the organization of content structure si
 I am sharing this on the Internet and it is organized as coherent chunks of content inside larger topics.  The format is designed primarily for convenient reading on a phone.
 
 Enjoy!
+
+[Ruchira Bomiriya](/)
+Aug 21, 2026
+Colombo
