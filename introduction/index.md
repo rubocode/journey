@@ -15,11 +15,10 @@ A fundamental element of life is freedom — the ability to exercise choice and 
 Of course this comes with the elements of responsibility and accountability for your choices.
 You can choose, decide and act but you will have to accept the consequences.
 Thus, a better life benefits heavily from the element of education.
+My university studies were in Computer Engineering and Philosophy — about Systems and Ideas.
 
 There are deep and essential questions of life when they are not adequately understood that
 drags life and civilization down into unnecessary suffering, doom and destruction.
-My university studies were in Computer Engineering and Philosophy — about Systems and Ideas.
-
 The most important question in life is whether there is any purpose to it or is it merely just a crap shoot.
 Each person needs to sort these matters out for themselves.
 If history is any indication, some people do and some people don't.
@@ -51,5 +50,9 @@ Second, writing allows incremental improvement for more clarity and precision.
 
 I have made considerable effort to make the organization of content structure
 simple, focused and relevant to overall purpose.
+Of course, there is a personal element and a personal touch as it is derived out of my journey.
+
+I am sharing this on the Internet and the format is designed primarily for a phone.
+It is easy to share a coherent chunk from a larger topic.
 
 Enjoy!
