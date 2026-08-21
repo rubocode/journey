@@ -4,6 +4,9 @@
 
 ## Introduction
 
+> Life is a refined study of the obvious.  
+> **Jim Rohn**
+
 Life, for each individual has a few certainties regardless of your belief system.
 You're born, you live and then you die.
 Civilization has evolved societal structures to help you have a better experience along the way.
