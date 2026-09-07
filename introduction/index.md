@@ -7,7 +7,7 @@
 > Life is a refined study of the obvious.  
 > **Jim Rohn**
 
-Life, for each individual has a few certainties regardless of your belief system.  You are born, you live and then you die.  Civilization has evolved societal structures to  you have a better experience along the way.
+Life, for each individual has a few certainties regardless of your belief system.  You are born, you live and then you die.  Civilization has evolved societal structures for you to have a better experience along the way.
 
 A fundamental element of life is freedom — the ability to exercise choice and decide what to do next.  Of course, this comes with the elements of responsibility and accountability for your choices.  You can choose, decide and act but you will have to accept the consequences.  Thus a better life benefits heavily from the element of education.  My academic studies were in Computer Engineering and Philosophy — about Systems and Ideas.
 
