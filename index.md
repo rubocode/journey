@@ -12,3 +12,4 @@
 
 * [Introduction](introduction)
 * [Memories](memories)
+* [Purpose](purpose)
