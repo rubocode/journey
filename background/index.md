@@ -7,7 +7,7 @@
 > To see things in the seed, that is genius.  
 > **Lao Tzu**
 
-I was born on January 1, 1970 at the Castle Street Hospital in Colombo.  This eventually became the standard day zero for the UNIX operating system — the start of the epoch.  My father was from the old kingdom of Seethawaka and my mother was from the old kingdom of Kotte.  My first home was my maternal grandfather house in Thalangama.
+I was born on January 1, 1970 at the Castle Street Hospital in Colombo.  This eventually became the standard day zero for the UNIX operating system — the start of the epoch.  My father was from the old kingdom of Seethawaka and my mother was from the old kingdom of Kotte.  My first home was my maternal grandfather’s house in Thalangama.
 
 I attended two Montessori schools inside of one year and started schooling at Veluwana Junior Model School in Dematagoda up to grade 5.  I got qualified to enter Royal College from grade 6 via both the Grade 5 Scholarship examination and the Royal College Entrance examination.  I graduated from Royal College qualified to enter the University of Moratuwa in the Engineering I category.  However, there were problems in the country and the universities were closed.
 
