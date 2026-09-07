@@ -4,7 +4,6 @@
 
 ## Purpose
 
-> And all things are of God,
-> who hath reconciled us to himself by Jesus Christ,
-> and hath given to us the ministry of reconciliation.  
-> **2 Corinthians 5:18 KJV**
+> Yesterday I was clever, so I wanted to change the world.
+> Today I am wise, so I am changing myself.  
+> **Rumi**
