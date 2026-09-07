@@ -15,5 +15,3 @@ I followed a BASIC programming course conducted by the Lions Club of Thalangama 
 I joined the Institute of Fundamental Studies (IFS) in April 1989 and worked as a Pre-University Research Associate (PRA).  I worked in two different projects — Geology and Computing.
 
 After completing the American ACT examinations, I got an academic scholarship to study at Stevens Institute of Technology at Castle Point on the Hudson in New Jersey, USA.  I worked as a co-op student during my stay.  Upon graduation, I joined Salomon Bothers — the Wall Street brokerage firm.  Salomon first merged with Smith Barney and later with Citibank and became Citigroup.  I returned to Sri Lanka in September 2000.
-
-I practice as a Strategy Consultant now.
