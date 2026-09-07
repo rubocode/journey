@@ -2,7 +2,7 @@
 
 ![banner](/journey/photos/banner.png)
 
-## Background
+## Memories
 
 > To see things in the seed, that is genius.  
 > **Lao Tzu**
