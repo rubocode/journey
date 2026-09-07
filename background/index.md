@@ -7,16 +7,11 @@
 > To see things in the seed, that is genius.  
 > **Lao Tzu**
 
-I was born on January 1, 1970 at the Castle Street Hospital in Colombo.  This eventually became the standard day zero for the UNIX operating system — the start of the epoch.
+I was born on January 1, 1970 at the Castle Street Hospital in Colombo.  This eventually became the standard day zero for the UNIX operating system — the start of the epoch.  My father was from the old kingdom of Seethawaka and my mother was from the old kingdom of Kotte.  My first home was my maternal grandfather house in Thalangama.
 
-My father was from the old kingdom of Seethawaka and my mother was from the old kingdom of Kotte.  My first home was my maternal grandfather house in Thalangama.
-
-I attended two Montessori schools inside of one year and started schooling at Veluwana Junior Model School in Dematagoda up to grade 5.  I got qualified to enter Royal College from grade 6 via both the Grade 5 Scholarship examination and the Royal College Entrance examination.
-
-I graduated from Royal College qualified to enter the University of Moratuwa in the Engineering I category.  However, there were problems in the country and the universities were closed.
+I attended two Montessori schools inside of one year and started schooling at Veluwana Junior Model School in Dematagoda up to grade 5.  I got qualified to enter Royal College from grade 6 via both the Grade 5 Scholarship examination and the Royal College Entrance examination.  I graduated from Royal College qualified to enter the University of Moratuwa in the Engineering I category.  However, there were problems in the country and the universities were closed.
 
 I followed a BASIC programming course conducted by the Lions Club of Thalangama Malabe.  I did well and was offered the opportunity to become an instructor for the next batch.
-
 I joined the Institute of Fundamentals Studies (IFS) in April 1989 and worked as a Pre-University Research Associate.  I worked in two different projects — Geology and Computing.
 
 After completing the American ACT examinations, I got an academic scholarship to study at Stevens Institute of Technology.  I worked as a co-op student at Maidenform, Inc. during my stay.
