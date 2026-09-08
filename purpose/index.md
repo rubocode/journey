@@ -9,7 +9,7 @@
 
 Action requires purpose.  You have to know what you want.  If you don’t know what you want, you get to choose to find out or to avoid wanting to find out.  In the latter case, ignorance becomes the purpose in that instance.
 
-There is depth to the issue.  There is purpose in little things and big things.  Why would you want coffee instead of tea may be a small matter.  Not knowing whether there is purpose in your life can have dramatic consequences.
+There is depth to the issue.  There is purpose in little things and big things.  Why would you want coffee instead of tea may be a small matter.  Not knowing whether there is purpose in your life can have dramatic consequences.  You need to walk into the light from the darkness.
 
 I joined Buddhist Sunday School when I was in grade 3.  One of the monks teaching us was Mulleriyawe Chandrasiri Thero.  One day I asked him what would be the best thing a human can become.  He said “a Buddha!”  I didn’t quite know what it encompassed.  But it was a stretch goal that made everything else including material prosperity a trivial pursuit.
 
@@ -17,7 +17,7 @@ While I was at the IFS, I attended the commemoration of the Bicentennial of the 
 
 Just two years before, India had forcibly intervened in Sri Lanka.  I just wondered how a righteous society would be protected.  I was a Buddhist and I was reminded of the following saying:
 
-> ධම්මෝ හවේ රක්ඛති ධම්මචාරී
+> ධම්මෝ හවේ රක්ඛති ධම්මචාරී  
 > Those who practice the Dhamma are protected by the Dhamma
 
 The Director at the IFS was Prof. Cyril Ponnamperuma who was the Lead Scientist to examine the soil samples from the first lunar mission in 1969.  He was the Head of the Laboratory of Chemical Evolution in University of Maryland.  He passed away in 1995.  His last rights were done in the Christian tradition.  How can a man who believes that God created man spend his entire life studying evolution?
