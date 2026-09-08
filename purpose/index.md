@@ -24,4 +24,4 @@ The Director at the IFS was Prof. Cyril Ponnamperuma who was the Lead Scientist 
 
 Rohan Gunaratna who signed my autograph at the IFS with the message at the top in 1990 when I was just about to leave for the USA for my undergraduate studies wanted me to return to Sri Lanka and make this place a better country.  He had already written two books — one on the LTTE and another on the JVP who were both rebelling against the existing government. I took a course on the French Revolution as part of my undergraduate studies.
 
-A just and righteous society can only be established upon a foundation of absolute truth.  Otherwise, its stability becomes questionable.  I wanted to figure these things out.
+A just and righteous society can only be established upon a foundation of absolute truth.  Otherwise, its stability becomes questionable.  I wanted to figure out how one could go about enabling this pursuit.  The ultimate result would be peace on Earth.  Now we have direction.
