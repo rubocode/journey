@@ -11,7 +11,7 @@ Action requires purpose.  You have to know what you want.  If you don’t know w
 
 There is depth to the issue.  There is purpose in little things and big things.  Why would you want coffee instead of tea may be a small matter.  Not knowing whether there is purpose in your life can have dramatic consequences.  You need to walk into the light from the darkness.
 
-I joined Buddhist Sunday School when I was in grade 3.  One of the monks teaching us was Mulleriyawe Chandrasiri Thero.  One day I asked him what would be the best thing a human can become.  He said “a Buddha!”  I didn’t quite know what it encompassed.  But it was a stretch goal that made everything else including material prosperity a trivial pursuit.
+I joined Sri Dhammananda Sunday School in Thalangama when I was in grade 3.  One of the monks teaching us was Mulleriyawe Chandrasiri Thero.  One day I asked him what would be the best thing a human can become.  He said “a Buddha!”  I didn’t quite know what it encompassed.  But it was a stretch goal that made everything else including material prosperity a trivial pursuit.
 
 While I was at the IFS, I attended the commemoration of the Bicentennial of the French Revolution in 1989.  President J. R. Jayewardene and Opposition Leader Mrs. Sirimavo Bandaranaike were present.  The opposition leader and her son extolled the virtues of the French Revolution.  Finally, President Jayewardene spoke.  He said that he attended the event to emphatically denounce the use of violence to acquire power.  His motto was “A Righteous Society (ධර්මිෂ්ඨ සමාජයක්).”
 
