@@ -1,5 +1,4 @@
 > [home](/)
-> &bull; Work in progress...
 
 ![banner](/journey/photos/banner.png)
 
