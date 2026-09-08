@@ -4,6 +4,5 @@
 
 ## Purpose
 
-> Yesterday I was clever, so I wanted to change the world.  
-> Today I am wise, so I am changing myself.  
-> **Rumi**
+> It is better to light one candle than to complain about the darkness.  
+> **Swami Vivekananda**
