@@ -1,6 +1,6 @@
 > [home](../)
 
-![banner](/journey/photos/banner.png)
+![photo](/journey/photos/certificates.png)
 
 ## Introduction
 
