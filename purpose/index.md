@@ -20,7 +20,7 @@ Just two years before, India had forcibly intervened in Sri Lanka.  I just wonde
 > ධම්මෝ හවේ රක්ඛති ධම්මචාරී  
 > Those who practice the Dhamma are protected by the Dhamma
 
-The Director at the IFS was Prof. Cyril Ponnamperuma who was the Lead Scientist to examine the soil samples from the first lunar mission in 1969.  He was the Head of the Laboratory of Chemical Evolution in University of Maryland.  He passed away in 1995.  His last rights were done in the Christian tradition.  How can a man who believes that God created man spend his entire life studying evolution?
+The Director at the IFS, Prof. Cyril Ponnamperuma, was the Lead Scientist to examine the soil samples from the first lunar mission in 1969.  He was the Head of the Laboratory of Chemical Evolution in University of Maryland.  He passed away in 1995.  His last rights were done in the Christian tradition.  How can a man who believes that God created man spend his entire life studying evolution?
 
 Rohan Gunaratna who signed my autograph at the IFS with the message at the top in 1990 when I was just about to leave for the USA for my undergraduate studies wanted me to return to Sri Lanka and make this place a better country.  He had already written two books — one on the LTTE and another on the JVP who were both rebelling against the existing government. I took a course on the French Revolution as part of my undergraduate studies.
 
