@@ -1,6 +1,6 @@
 > [home](../)
 
-![banner](/journey/photos/banner.png)
+![photo](/journey/photos/candle.png)
 
 ## Purpose
 
