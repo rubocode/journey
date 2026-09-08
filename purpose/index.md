@@ -13,7 +13,7 @@ There is depth to the issue.  There is purpose in little things and big things. 
 
 I joined Buddhist Sunday School when I was in grade 3.  One of the monks teaching us was Mulleriyawe Chandrasiri Thero.  One day I asked him what would be the best thing a human can become.  He said “a Buddha!”  I didn’t quite know what it encompassed.  But it was a stretch goal that made everything else including material prosperity a trivial pursuit.
 
-While I was at the IFS, I attended the commemoration of the Bicentennial of the French Revolution in ~~1989~~.  President J. R. Jayewardene and Opposition Leader Mrs. Sirimavo Bandaranaike were present.  The opposition leader and her son extolled the virtues of the French Revolution.  Finally, President Jayewardene spoke.  He said that he attended the event to emphatically denounce the use of violence to acquire power.  His motto was *A righteous society (ධර්මිෂ්ඨ සමාජයක්)*.
+While I was at the IFS, I attended the commemoration of the Bicentennial of the French Revolution in 1989.  President J. R. Jayewardene and Opposition Leader Mrs. Sirimavo Bandaranaike were present.  The opposition leader and her son extolled the virtues of the French Revolution.  Finally, President Jayewardene spoke.  He said that he attended the event to emphatically denounce the use of violence to acquire power.  His motto was “A Righteous Society (ධර්මිෂ්ඨ සමාජයක්).”
 
 Just two years before, India had forcibly intervened in Sri Lanka.  I just wondered how a righteous society would be protected.  I was a Buddhist and I was reminded of the following saying:
 
