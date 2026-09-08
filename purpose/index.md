@@ -22,6 +22,6 @@ Just two years before, India had forcibly intervened in Sri Lanka.  I just wonde
 
 The Director at the IFS was Prof. Cyril Ponnamperuma who was the Lead Scientist to examine the soil samples from the first lunar mission in 1969.  He was the Head of the Laboratory of Chemical Evolution in University of Maryland.  He passed away in 1995.  His last rights were done in the Christian tradition.  How can a man who believes that God created man spend his entire life studying evolution?
 
-Rohan Gunaratna who signed my autograph with the message at the top in 1990 when I was just about to leave for the USA for my undergraduate studies wanted me to return to Sri Lanka and make this place a better country.  He had already written two books — one on the LTTE and another on the JVP who were rebelling against the existing government.
+Rohan Gunaratna who signed my autograph at the IFS with the message at the top in 1990 when I was just about to leave for the USA for my undergraduate studies wanted me to return to Sri Lanka and make this place a better country.  He had already written two books — one on the LTTE and another on the JVP who were both rebelling against the existing government.
 
 A just and righteous society can only be established upon a foundation of absolute truth.  Otherwise, its stability becomes questionable.  I wanted to figure these things out.
