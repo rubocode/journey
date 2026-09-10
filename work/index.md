@@ -17,4 +17,4 @@ You need to learn governance.  Governing yourself, your family and your communit
 
 You need to educate yourself and others.  You can’t teach what you do not know.  You need wisdom — practical understanding.  You need to be able to relate to and communicate with others towards the righteous society.
 
-Each individual is at a different point in his or her journey.  Each one has a unique purpose to fulfill.  Some of them will serve as examples, others as warnings.  You need to walk towards the light and also be able to help the ones in darkness.
+Each individual is at a different point in his or her journey.  Each one has a unique purpose to fulfill.  Some of them will serve as examples, others as warnings.  You need to walk towards the light and also be able to help the ones in the dark.
