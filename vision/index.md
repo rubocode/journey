@@ -1,10 +1,10 @@
 > [home](../)
 
-![photo](/journey/photos/peace.png)
+![photo](/journey/photos/righteous.png)
 
 ## Vision
 
-> ETHICAL DEVELOPMENT™
+> ETHICAL DEVELOPMENT™. 
 > ධාර්මික සංවර්ධනය™
 
 We need to establish a durable, just and righteous system of governance for a prosperous Sri Lanka.
