@@ -12,3 +12,5 @@
 * [Introduction](introduction)
 * [Purpose](purpose)
 * [Work](work)
+* [Challenge](challenge)
+* [Vision](vision)
