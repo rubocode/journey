@@ -15,4 +15,4 @@ A Sri Lankan needs to be welcome in any country in the world as a valuable indiv
 
 It must be rather obvious that the aspiration above is universally applicable to any country.
 
-That serves as a foundation in anticipation of a practical global peace.
+That serves as a foundation in anticipation of comprehending a practical global peace.
