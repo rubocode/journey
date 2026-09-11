@@ -13,4 +13,6 @@ We need to achieve peace through strength of moral character, talent and skill o
 
 A Sri Lankan needs to be welcome in any country in the world as a valuable individual with respect and arms of friendship.
 
-It must be rather obvious that the aspiration above is universally applicable to any country.  That serves as a foundation in anticipation of a practical global peace.
+It must be rather obvious that the aspiration above is universally applicable to any country.
+
+That serves as a foundation in anticipation of a practical global peace.
